@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GhuyMedeiros
+- 👀 I’m interested in hacks tools.
+- 🌱 I am currently reading the Termux help.
+- 📫 How to reach me - Discord: GhuyOfficial#9250
+-     I warn you! I am Russian!
